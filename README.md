@@ -1,0 +1,2 @@
+# Help-With-Quest
+I am clean Sholomance 6 times for do quest The lich, Ras. For finish this quest i need channeled on him book and that guy is turning in human! than i need kill it and loot humans head. i do it 5 times and cant loot that head from budy! just cant loot it! Then i create ticket to GM and GM send me letter -Clean WDB folder and give quest at first. I am do this, clean WDB and same result!i am be in sholo sholo all day... Plz just add me this head in my bag here is scrn https://imgur.com/a/ZMciw
